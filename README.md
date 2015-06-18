@@ -1,5 +1,5 @@
-# Lame Pinterest Ripoff
+# Yolo Octo Swag
 
-This is a weak-ass rip off for [*The Boss Dog*][http://www.google.com]
+This is the most amazing, profitable web app to date[*The Boss Dog*][http://www.google.com]
 
 by JraeDog
